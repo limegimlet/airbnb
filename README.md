@@ -24,8 +24,8 @@ More recently, to take advantage of the hollowing-out of the tourist sector as a
 
 # Questions
 
-* What proportion of listings comply with the listings?
-* How effective have these additional measures been? 
+* What proportion of listings comply with the requirements?
+* How effective have these additional measures been at reducing the number of short-term rentals? 
 
 What I'd ultimately like to know, is whether it has improved the ability for locals to afford to rent or buy in Paris? 
 
